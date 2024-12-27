@@ -18,7 +18,7 @@
 ### 🤝🏻 &nbsp;Connect with Me
 
 <p align="center">
-<a href="katravathmanohar48593@gmail.com"><img src="https://img.shields.io/badge/-avsingh@umass.edu-D14836?style=flat&logo=Gmail&logoColor=white"/></a>
+<a href="katravathmanohar48593@gmail.com"><img src="https://img.shields.io/badge/-katravathmanohar48593@gmail.com-D14836?style=flat&logo=Gmail&logoColor=white"/></a>
 
 
 
